@@ -1,4 +1,4 @@
-# Hi there, I’m Mirimalle!
+# Hi, I’m Miriam :)
 
 **Student passionate about tech, design, and creativity**  
 I love building girly projects and I’m all about combining technology with a sense of fun and fashion!
